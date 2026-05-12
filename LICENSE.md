@@ -1,4 +1,4 @@
-#  
+#  bedwars secure Scripts offers the most advanced bedwars Script, with undetectable and teleport. Perfect for dominating any match.
 
 
 
